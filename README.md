@@ -1,1 +1,1 @@
-# PSR-Lab-Sk-ady-Klucz-Warto-
+# PSR-Lab-Sklady-Klucz-Wartosc
